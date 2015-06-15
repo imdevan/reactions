@@ -43,7 +43,7 @@ Conan Bird - https://i.imgur.com/XXfI3Nt.gif<br/>
 ### Nigal Thornberry
 
 ### To Organize
-
+They're more guidelines - http://i.imgur.com/wBbM04q.gif
 Sagan You’re Awesome - https://i.imgur.com/xgOGy.gif<br/>
 
 Angry Puppet - https://i.imgur.com/1fWgFJk.gif<br/>
