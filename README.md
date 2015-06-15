@@ -3,21 +3,28 @@
 ### To Want
 Zim "I have a Mighty Need" - http://i.imgur.com/n2uDOij.gif<br/>
 
+
 ### Approval
 Beauty Jake - https://i.imgur.com/0yQFyJc.gif<br/>
 Marcy+IceKing Eyebrow - https://i.imgur.com/GObPMva.gif<br/>
+
 
 ### Happy
 AT Upvote - https://i.imgur.com/pJuvVpo.gif<br/>
 Rainbow Jake - https://i.imgur.com/bh1sCRs.gif<br/>
 Advice Jake - https://i.imgur.com/HZvOArE.gif<br/>
 
+
 ### Sad
 Feels Jake - https://i.imgur.com/E5vi2AY.gif<br/>
 Rainy - http://i.imgur.com/g9n4vpx.gif<br/>
 
-### To Organize
+
+### When Someone is a Jerk
 Dark Magic - https://i.imgur.com/wmfPRoa.gif<br/>
+
+
+### To Organize
 Me - https://i.imgur.com/CJhaO0F.gif<br/>
 Conan Bird - https://i.imgur.com/XXfI3Nt.gif<br/>
 
