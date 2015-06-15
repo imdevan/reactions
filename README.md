@@ -8,9 +8,12 @@ Zim "I have a Mighty Need" - http://i.imgur.com/n2uDOij.gif<br/>
 Beauty Jake - https://i.imgur.com/0yQFyJc.gif<br/>
 Marcy+IceKing Eyebrow - https://i.imgur.com/GObPMva.gif<br/>
 
+#### Upvote
+AT Upvote - https://i.imgur.com/pJuvVpo.gif<br/>
+Upvote Kitty - http://i.imgur.com/Y6sHgV4.gif<br/>
+
 
 ### Happy
-AT Upvote - https://i.imgur.com/pJuvVpo.gif<br/>
 Rainbow Jake - https://i.imgur.com/bh1sCRs.gif<br/>
 Advice Jake - https://i.imgur.com/HZvOArE.gif<br/>
 
@@ -23,6 +26,8 @@ Rainy - http://i.imgur.com/g9n4vpx.gif<br/>
 ### When Someone is a Jerk
 Dark Magic - https://i.imgur.com/wmfPRoa.gif<br/>
 
+
+### Nigal Thornbarry
 
 ### To Organize
 Me - https://i.imgur.com/CJhaO0F.gif<br/>
@@ -73,7 +78,6 @@ Brutal - https://i.imgur.com/XgCq6NU.png
 Bees - https://i.imgur.com/8kf3oGG.jpg<br/>
 Nigel Jasmine - https://i.imgur.com/4zQ7p.gif<br/>
 A Wazard - http://i.imgur.com/IoQdYIn.gif<br/>
-Upvote Kitty - http://i.imgur.com/Y6sHgV4.gif<br/>
 
 Cute Yes - https://i.imgur.com/wcwWlAL.gif<br/>
 Cat Friend - https://i.imgur.com/ePlKcIQ.gif<br/>
