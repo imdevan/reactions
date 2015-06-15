@@ -8,8 +8,16 @@ Zim "I have a Mighty Need" - http://i.imgur.com/n2uDOij.gif<br/>
 Beauty Jake - https://i.imgur.com/0yQFyJc.gif<br/>
 Marcy+IceKing Eyebrow - https://i.imgur.com/GObPMva.gif<br/>
 
+### Disapproval
+No Pardon - https://i.imgur.com/06cWsxR.gif<br/>
+UR Dumb - https://i.imgur.com/4r6ftEu.gif<br/>
+No Response - https://i.imgur.com/86KWU4g.gif<br/>
+
+
 #### Upvote
 AT Upvote - https://i.imgur.com/pJuvVpo.gif<br/>
+
+### Motivational 
 Upvote Kitty - http://i.imgur.com/Y6sHgV4.gif<br/>
 
 
@@ -18,28 +26,26 @@ Rainbow Jake - https://i.imgur.com/bh1sCRs.gif<br/>
 Advice Jake - https://i.imgur.com/HZvOArE.gif<br/>
 
 
-### Sad
+### Sad / Feels
 Feels Jake - https://i.imgur.com/E5vi2AY.gif<br/>
-Rainy - http://i.imgur.com/g9n4vpx.gif<br/>
+Metallic Feels - https://i.imgur.com/X8NFTeR.gif<br/>
 
 
 ### When Someone is a Jerk
 Dark Magic - https://i.imgur.com/wmfPRoa.gif<br/>
 
+### TLDR / DGAF
+Tl;Dr Boxing - https://i.imgur.com/huBDiXa.gif<br/>
 
-### Nigal Thornbarry
-
-### To Organize
-Me - https://i.imgur.com/CJhaO0F.gif<br/>
+### Surprised 
 Conan Bird - https://i.imgur.com/XXfI3Nt.gif<br/>
 
-Metallic Feels - https://i.imgur.com/X8NFTeR.gif<br/>
-Tl;Dr Boxing - https://i.imgur.com/huBDiXa.gif<br/>
-Sagan You’re Awesome - https://i.imgur.com/xgOGy.gif<br/>
-UR Dumb - https://i.imgur.com/4r6ftEu.gif<br/>
-No Response - https://i.imgur.com/86KWU4g.gif<br/>
+### Nigal Thornberry
 
-No Pardon - https://i.imgur.com/06cWsxR.gif<br/>
+### To Organize
+
+Sagan You’re Awesome - https://i.imgur.com/xgOGy.gif<br/>
+
 Angry Puppet - https://i.imgur.com/1fWgFJk.gif<br/>
 Rainbow Gnome - https://i.imgur.com/WlcGHNw.gif<br/>
 Dipper Troll - https://i.imgur.com/Zto8s2X.gif<br/>
