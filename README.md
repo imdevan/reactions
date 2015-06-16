@@ -29,7 +29,7 @@ Advice Jake - https://i.imgur.com/HZvOArE.gif<br/>
 ### Sad / Feels
 Feels Jake - https://i.imgur.com/E5vi2AY.gif<br/>
 Metallic Feels - https://i.imgur.com/X8NFTeR.gif<br/>
-
+Stuck - http://i.imgur.com/QJ4Y74s.gif<br/>
 
 ### When Someone is a Jerk
 Dark Magic - https://i.imgur.com/wmfPRoa.gif<br/>
