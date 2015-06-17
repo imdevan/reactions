@@ -15,10 +15,9 @@ Ohh - https://i.imgur.com/Qkryinz.gif<br/>
 Nooice - http://i.imgur.com/wABaBT2.gif<br/>
 Ali Dodge - http://i.imgur.com/LRZwzN5.gif<br/>
 Well Hmm - http://i.imgur.com/ShUb4JB.gif<br/>
+Rock Clap - http://i.imgur.com/PyPAUcM.gif<br/>
 Standing Ovation - https://i.imgur.com/NPYrjp1.gif<br/>
-
 Calvin Dance - https://i.imgur.com/Z4PnMWC.gif<br/>
-
 Brutal - https://i.imgur.com/XgCq6NU.png
 Cute Yes - https://i.imgur.com/wcwWlAL.gif<br/>
 Cat Friend - https://i.imgur.com/ePlKcIQ.gif<br/>
@@ -39,6 +38,12 @@ Kitten Yawn - https://i.imgur.com/IEqPSuk.gif<br/>
 Fiddler IDK - http://i.imgur.com/jPXSoLG.gif<br/>
 Stanley Nod - http://i.imgur.com/0e7binf.gif<br/>
 Joint Staredown - http://i.imgur.com/1Ztqyil.gif<br/>
+Sagan You’re Awesome - http://gifrific.com/wp-content/uploads/2012/06/Carl-Sagan-Youre-Awesome.gif<br/>
+Not Productive - https://i.imgur.com/SWOshWH.gif<br/>
+Dolphin Spin - https://i.imgur.com/AWwlnNo.gif<br/>
+
+
+
 Technically Correct - http://i.imgur.com/JfelRWf.gif<br/>
 
 ### Negative
@@ -68,19 +73,10 @@ Conan Bird - https://i.imgur.com/XXfI3Nt.gif<br/>
 My Gosh - https://i.imgur.com/u6A9ohq.gif<br/>
 Snape Shrug - http://i.imgur.com/UuY2gO8.gif<br/>
 Eugene Hi - http://i.imgur.com/c1TJTAJ.gif<br/>
+Hades Cigar - http://i.imgur.com/oqIhxez.gif<br/>
 Belief Denied - https://i.imgur.com/9Xc4nFN.gif<br/>
 Troy Emotions - http://i.imgur.com/utj764M.gif<br/>
 
-Rock Clap - http://i.imgur.com/PyPAUcM.gif<br/>
-Self Expression - http://i.imgur.com/bX41EQT.gif<br/>
-Hades Cigar - http://i.imgur.com/oqIhxez.gif<br/>
-
-They're more guidelines - http://i.imgur.com/wBbM04q.gif<br/>
-Sagan You’re Awesome - https://i.imgur.com/xgOGy.gif<br/>
-Not Productive - https://i.imgur.com/SWOshWH.gif<br/>
-Dolphin Spin - https://i.imgur.com/AWwlnNo.gif<br/>
-Bunny Shower - https://i.imgur.com/NqtI3lu.gif<br/>
-IceCream Sandwich - https://i.imgur.com/1SfI7yw.gif<br/>
 
 
 
