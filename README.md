@@ -34,6 +34,13 @@ Stuck - http://i.imgur.com/QJ4Y74s.gif<br/>
 ### When Someone is a Jerk
 Dark Magic - https://i.imgur.com/wmfPRoa.gif<br/>
 
+### Akward
+Akward drinking water - http://i.imgur.com/myPYrVU.gif<br/>
+Not surprised Darnaryeus - http://i.imgur.com/EeT1nCw.gif<br/>
+Another! - http://media.giphy.com/media/VT9DTMhEv5aQU/giphy.gif<br/>
+
+
+
 ### TLDR / DGAF
 Tl;Dr Boxing - https://i.imgur.com/huBDiXa.gif<br/>
 
