@@ -41,9 +41,7 @@ Joint Staredown - http://i.imgur.com/1Ztqyil.gif<br/>
 Sagan You’re Awesome - http://gifrific.com/wp-content/uploads/2012/06/Carl-Sagan-Youre-Awesome.gif<br/>
 Not Productive - https://i.imgur.com/SWOshWH.gif<br/>
 Dolphin Spin - https://i.imgur.com/AWwlnNo.gif<br/>
-
-
-
+Time is Pizz - http://media.giphy.com/media/p6iPHyrGYLiRq/giphy.gif<br/>
 Technically Correct - http://i.imgur.com/JfelRWf.gif<br/>
 
 ### Negative
