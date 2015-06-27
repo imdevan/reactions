@@ -44,6 +44,9 @@ Dolphin Spin - https://i.imgur.com/AWwlnNo.gif<br/>
 Time is Pizz - http://media.giphy.com/media/p6iPHyrGYLiRq/giphy.gif<br/>
 Technically Correct - http://i.imgur.com/JfelRWf.gif<br/>
 I want to go there - http://i.imgur.com/J3LFLI8.gif<br/>
+Amazing NPH - https://files.slack.com/files-pri/T03E9GTFF-F068BCJSJ/amazing.gif<br/>
+Old Man Skateboardign - https://files.slack.com/files-pri/T03E9GTFF-F06BQHWQ0/kick_push.gif<br/>
+Sneaky Spiderman - https://files.slack.com/files-pri/T03E9GTFF-F0689E78F/tumblr_inline_njmp0vrsj01qznfri.gif<br/>
 
 ### Negative
 Feels Jake - https://i.imgur.com/E5vi2AY.gif<br/>
