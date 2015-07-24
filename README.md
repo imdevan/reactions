@@ -1,8 +1,9 @@
 # Reactioning so hard!
 
 ### Positive
+*yes
+Cute Yes - https://i.imgur.com/wcwWlAL.gif<br/>
 Rainbow Jake - https://i.imgur.com/bh1sCRs.gif<br/>
-Advice Jake - https://i.imgur.com/HZvOArE.gif<br/>
 Woo Woo - https://i.imgur.com/shRCOnY.gif<br/>
 Sparkle Eyes - https://i.imgur.com/KCJeIrb.gif<br/>
 Marshall Pillow - https://i.imgur.com/vmWmn4b.gif<br/>
@@ -18,9 +19,8 @@ Well Hmm - http://i.imgur.com/ShUb4JB.gif<br/>
 Rock Clap - http://i.imgur.com/PyPAUcM.gif<br/>
 Standing Ovation - https://i.imgur.com/NPYrjp1.gif<br/>
 Calvin Dance - https://i.imgur.com/Z4PnMWC.gif<br/>
-Brutal - https://i.imgur.com/XgCq6NU.png
-Cute Yes - https://i.imgur.com/wcwWlAL.gif<br/>
-Cat Friend - https://i.imgur.com/ePlKcIQ.gif<br/>
+Brutal - https://i.imgur.com/XgCq6NU.png<br/>
+Giving luv, with no luv back - https://i.imgur.com/ePlKcIQ.gif<br/>
 B Be Crazy - https://i.imgur.com/Co3s7PX.gif<br/>
 I’m Broke - https://i.imgur.com/xxK8kuB.gif<br/>
 I Lied - https://i.imgur.com/CcLoYPq.gif<br/>
@@ -47,6 +47,7 @@ I want to go there - http://i.imgur.com/J3LFLI8.gif<br/>
 Amazing NPH - https://files.slack.com/files-pri/T03E9GTFF-F068BCJSJ/amazing.gif<br/>
 Old Man Skateboardign - https://files.slack.com/files-pri/T03E9GTFF-F06BQHWQ0/kick_push.gif<br/>
 Sneaky Spiderman - https://files.slack.com/files-pri/T03E9GTFF-F0689E78F/tumblr_inline_njmp0vrsj01qznfri.gif<br/>
+Advice Jake - https://i.imgur.com/HZvOArE.gif<br/>
 
 ### Negative
 Feels Jake - https://i.imgur.com/E5vi2AY.gif<br/>
