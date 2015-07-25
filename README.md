@@ -4,6 +4,13 @@
 * yes 
 
 Cute Yes - https://i.imgur.com/wcwWlAL.gif<br/>
+
+* I can help!
+
+Bill Murray - https://i.imgur.com/LCQcxs2.gif<br/>
+Guy from pych - https://31.media.tumblr.com/tumblr_lrszy0q1VB1qluum0o1_250.gif<br/>
+
+High Five .jpg - https://i.imgur.com/flj5wFP.jpg<br/>
 Rainbow Jake - https://i.imgur.com/bh1sCRs.gif<br/>
 Woo Woo - https://i.imgur.com/shRCOnY.gif<br/>
 Sparkle Eyes - https://i.imgur.com/KCJeIrb.gif<br/>
@@ -49,6 +56,7 @@ Amazing NPH - https://files.slack.com/files-pri/T03E9GTFF-F068BCJSJ/amazing.gif<
 Old Man Skateboardign - https://files.slack.com/files-pri/T03E9GTFF-F06BQHWQ0/kick_push.gif<br/>
 Sneaky Spiderman - https://files.slack.com/files-pri/T03E9GTFF-F0689E78F/tumblr_inline_njmp0vrsj01qznfri.gif<br/>
 Advice Jake - https://i.imgur.com/HZvOArE.gif<br/>
+
 
 ### Negative
 Feels Jake - https://i.imgur.com/E5vi2AY.gif<br/>
