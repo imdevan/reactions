@@ -9,7 +9,7 @@ Cute Yes - https://i.imgur.com/wcwWlAL.gif<br/>
 
 Bill Murray - https://i.imgur.com/LCQcxs2.gif<br/>
 Guy from pych - https://31.media.tumblr.com/tumblr_lrszy0q1VB1qluum0o1_250.gif<br/>
-
+Never give up - http://i.imgur.com/Pa8RXEx.gif<br/>
 High Five .jpg - https://i.imgur.com/flj5wFP.jpg<br/>
 Rainbow Jake - https://i.imgur.com/bh1sCRs.gif<br/>
 Woo Woo - https://i.imgur.com/shRCOnY.gif<br/>
