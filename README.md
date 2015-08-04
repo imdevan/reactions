@@ -1,22 +1,17 @@
 # Reactioning so hard!
 
 ### Positive
-* yes 
 
-Cute Yes - https://i.imgur.com/wcwWlAL.gif<br/>
-
-* I can help!
-
-Bill Murray - https://i.imgur.com/LCQcxs2.gif<br/>
-Guy from pych - https://31.media.tumblr.com/tumblr_lrszy0q1VB1qluum0o1_250.gif<br/>
-Never give up - http://i.imgur.com/Pa8RXEx.gif<br/>
-High Five .jpg - https://i.imgur.com/flj5wFP.jpg<br/>
+Cute "Yes" - https://i.imgur.com/wcwWlAL.gif<br/>
+Bill Murray "perhaps I can be of assitance" - https://i.imgur.com/LCQcxs2.gif<br/>
+Guy from pych "I can fix that" - https://31.media.tumblr.com/tumblr_lrszy0q1VB1qluum0o1_250.gif<br/>
+Galaxy Quest "Never give up" - http://i.imgur.com/Pa8RXEx.gif<br/>
 Rainbow Jake - https://i.imgur.com/bh1sCRs.gif<br/>
-Woo Woo - https://i.imgur.com/shRCOnY.gif<br/>
-Sparkle Eyes - https://i.imgur.com/KCJeIrb.gif<br/>
-Marshall Pillow - https://i.imgur.com/vmWmn4b.gif<br/>
+"Woo Woo" - https://i.imgur.com/shRCOnY.gif<br/>
+Sparkley Eyes - https://i.imgur.com/KCJeIrb.gif<br/>
+Marshall Hugging Pillow - https://i.imgur.com/vmWmn4b.gif<br/>
 Beauty Jake - https://i.imgur.com/0yQFyJc.gif<br/>
-Marcy+IceKing Eyebrow - https://i.imgur.com/GObPMva.gif<br/>
+Marcy + IceKing Eyebrow - https://i.imgur.com/GObPMva.gif<br/>
 Appreciate Nod - https://i.imgur.com/Ay29K.jpg<br/>
 Nicholson Nod - https://i.imgur.com/amUJpQl.gif<br/>
 Zim "I have a Mighty Need" - http://i.imgur.com/n2uDOij.gif<br/>
