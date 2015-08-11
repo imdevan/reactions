@@ -2,6 +2,7 @@
 
 ### Positive
 
+Thumbs Up Hot Rod - http://media0.giphy.com/media/wTzPSxZBqSove/giphy.gif <br/>
 Thumbs Up Emma Stone - http://media.giphy.com/media/b5WsjNpMc35za/giphy.gif <br/>
 Cute "Yes" - https://i.imgur.com/wcwWlAL.gif<br/>
 Bill Murray "perhaps I can be of assitance" - https://i.imgur.com/LCQcxs2.gif<br/>
