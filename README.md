@@ -2,6 +2,7 @@
 
 ### Positive
 
+Thumbs Up Emma Stone - http://media.giphy.com/media/b5WsjNpMc35za/giphy.gif <br/>
 Cute "Yes" - https://i.imgur.com/wcwWlAL.gif<br/>
 Bill Murray "perhaps I can be of assitance" - https://i.imgur.com/LCQcxs2.gif<br/>
 Guy from pych "I can fix that" - https://31.media.tumblr.com/tumblr_lrszy0q1VB1qluum0o1_250.gif<br/>
