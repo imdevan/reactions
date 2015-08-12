@@ -2,6 +2,8 @@
 
 ### Positive
 
+Emergency Hug - http://i.imgur.com/hwNYC1v.gif <br/>
+Cheers - http://replygif.net/i/1335.gif <br/>
 Thumbs Up Hot Rod - http://media0.giphy.com/media/wTzPSxZBqSove/giphy.gif <br/>
 Thumbs Up Emma Stone - http://media.giphy.com/media/b5WsjNpMc35za/giphy.gif <br/>
 Cute "Yes" - https://i.imgur.com/wcwWlAL.gif<br/>
