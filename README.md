@@ -59,16 +59,7 @@ Advice Jake - https://i.imgur.com/HZvOArE.gif<br/>
 
 ### Negative
 Feels Jake - https://i.imgur.com/E5vi2AY.gif<br/>
-Metallic Feels - https://i.imgur.com/X8NFTeR.gif<br/>
 Stuck - http://i.imgur.com/QJ4Y74s.gif<br/>
-Damn Onions - https://i.imgur.com/GJOxOot.gif<br/>
-Whalberg Stare - https://i.imgur.com/CAh5dA4.gif<br/>
-Getting Hit in The Nuts - https://i.imgur.com/xXAVMaH.gif<br/>
-No Pardon - https://i.imgur.com/06cWsxR.gif<br/>
-UR Dumb - https://i.imgur.com/4r6ftEu.gif<br/>
-No Response - https://i.imgur.com/86KWU4g.gif<br/>
-Akward drinking water - http://i.imgur.com/myPYrVU.gif<br/>
-Not surprised Darnaryeus - http://i.imgur.com/EeT1nCw.gif<br/>
 Another! - http://media.giphy.com/media/VT9DTMhEv5aQU/giphy.gif<br/>
 Dark Magic - https://i.imgur.com/wmfPRoa.gif<br/>
 Staredown Ultra - http://i.imgur.com/U1jXQxM.gif<br/>
