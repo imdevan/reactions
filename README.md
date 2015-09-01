@@ -48,7 +48,7 @@ Joint Staredown - http://i.imgur.com/1Ztqyil.gif
 Sagan You’re Awesome - http://gifrific.com/wp-content/uploads/2012/06/Carl-Sagan-Youre-Awesome.gif  
 Not Productive - https://i.imgur.com/SWOshWH.gif  
 Dolphin Spin - https://i.imgur.com/AWwlnNo.gif  
-Time is Pizz - http://media.giphy.com/media/p6iPHyrGYLiRq/giphy.gif  
+Time is Pizza - http://media.giphy.com/media/p6iPHyrGYLiRq/giphy.gif  
 Technically Correct - http://i.imgur.com/JfelRWf.gif  
 I want to go there - http://i.imgur.com/J3LFLI8.gif  
 Amazing NPH - https://files.slack.com/files-pri/T03E9GTFF-F068BCJSJ/amazing.gif  
