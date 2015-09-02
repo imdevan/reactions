@@ -25,6 +25,7 @@ Ali Dodge - http://i.imgur.com/LRZwzN5.gif
 Well Hmm - http://i.imgur.com/ShUb4JB.gif  
 Rock Clap - http://i.imgur.com/PyPAUcM.gif  
 Standing Ovation - https://i.imgur.com/NPYrjp1.gif  
+Thank you for that - https://media.giphy.com/media/3HrXEYmdrmF68/giphy.gif  
 Calvin Dance - https://i.imgur.com/Z4PnMWC.gif  
 Brutal - https://i.imgur.com/XgCq6NU.png  
 Giving luv, with no luv back - https://i.imgur.com/ePlKcIQ.gif  
