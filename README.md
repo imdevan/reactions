@@ -3,6 +3,7 @@
 ### Positive
 
 Emergency Hug - http://i.imgur.com/hwNYC1v.gif   
+Elmo Suicide - http://i.imgur.com/S1LFeLF.gif  
 Cheers - http://replygif.net/i/1335.gif  
 Thumbs Up Hot Rod - http://media0.giphy.com/media/wTzPSxZBqSove/giphy.gif   
 Thumbs Up Emma Stone - http://media.giphy.com/media/b5WsjNpMc35za/giphy.gif   
@@ -36,6 +37,7 @@ Smooth Swanson - http://i.imgur.com/u1OGEqT.jpg
 Candy Dance - http://i.imgur.com/ihgdX5K.gif  
 Cry Promise - http://i.imgur.com/7VmpuJz.gif  
 Tony Defensive - http://i.imgur.com/T69Vh83.gif  
+Too Much Science - http://i.imgur.com/v91sNrl.gif  
 Feels Wave - https://i.imgur.com/SCelG.gif  
 Reference Landed - https://i.imgur.com/XS5LK.gif  
 Sauce - https://i.imgur.com/MFeiTke.gif  
@@ -52,6 +54,7 @@ Dolphin Spin - https://i.imgur.com/AWwlnNo.gif
 Time is Pizza - http://media.giphy.com/media/p6iPHyrGYLiRq/giphy.gif  
 Technically Correct - http://i.imgur.com/JfelRWf.gif  
 I want to go there - http://i.imgur.com/J3LFLI8.gif  
+I Like What You Got - http://i.imgur.com/32ZHALf.jpg  
 Amazing NPH - https://files.slack.com/files-pri/T03E9GTFF-F068BCJSJ/amazing.gif  
 Old Man Skateboardign - https://files.slack.com/files-pri/T03E9GTFF-F06BQHWQ0/kick_push.gif  
 Sneaky Spiderman - https://files.slack.com/files-pri/T03E9GTFF-F0689E78F/tumblr_inline_njmp0vrsj01qznfri.gif  
