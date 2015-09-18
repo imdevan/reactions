@@ -29,6 +29,7 @@ Nooice - http://i.imgur.com/wABaBT2.gif
 Not Productive - https://i.imgur.com/SWOshWH.gif  
 Ohh - https://i.imgur.com/Qkryinz.gif  
 Rainbow Jake - https://i.imgur.com/bh1sCRs.gif  
+Random and Exciting - http://i.imgur.com/blz6i3g.jpg  
 Rock Clap - http://i.imgur.com/PyPAUcM.gif  
 Standing Ovation - https://i.imgur.com/NPYrjp1.gif  
 Thank you for that - https://media.giphy.com/media/3HrXEYmdrmF68/giphy.gif  
