@@ -18,6 +18,7 @@ Did I Misss It? - http://www.reactiongifs.com/r/dimi.gif
 Elmo Suicide - http://i.imgur.com/S1LFeLF.gif  
 Emergency Hug - http://i.imgur.com/hwNYC1v.gif   
 Fiddler IDK - http://i.imgur.com/jPXSoLG.gif  
+Fierce - http://media0.giphy.com/media/BdmsDlJGMCxG0/giphy.gif  
 Galaxy Quest "Never give up" - http://i.imgur.com/Pa8RXEx.gif  
 Guy from pych "I can fix that" - https://31.media.tumblr.com/tumblr_lrszy0q1VB1qluum0o1_250.gif  
 I Like What You Got - http://i.imgur.com/32ZHALf.jpg  
