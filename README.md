@@ -61,3 +61,4 @@ Well Hmm - http://i.imgur.com/ShUb4JB.gif
 Yassss - https://files.slack.com/files-pri/T03E9GTFF-F06DP3TK6/clap_crying_yasss.gif  
 Zim "I have a Mighty Need" - http://i.imgur.com/n2uDOij.gif  
 
+![](http://media2.giphy.com/media/adyNJmJK8nUk0/giphy.gif)
